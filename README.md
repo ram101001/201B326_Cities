@@ -3,3 +3,4 @@
 Gwalior is in Madhya pradesh.
 Jaypee University of engineering and technology is in guna.
 Delhi is getting Hotter nowadays.
+Patna temperature is also reaching record high
